@@ -41,7 +41,7 @@
 
 点击访问：<a href="https://hl404.pages.dev/">黑料吃瓜网</a>
 
-点击访问：<a href="https://cg38-25.pages.dev/">911爆料</a>
+点击访问：<a href="https://pi79.pages.dev/">51漫画</a>
 
 点击访问：<a href="https://cg81-01.pages.dev/">吃瓜网站</a>
 
